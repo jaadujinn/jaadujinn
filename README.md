@@ -1,2 +1,2 @@
 # jaadujinn.github.io
-## Welcome here in firtst, ChetanMishra.
+## Welcome here in first, ChetanMishra.
